@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOVA050512MPLPLNA0
+LOVA050512MPLPLNA0
